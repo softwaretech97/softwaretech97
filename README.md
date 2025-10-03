@@ -15,7 +15,7 @@
 ---
 
 ## ⚡ İlgi Alanlarım
-- 📷 Fotoğraf & Vlog çekmek (Fuji X100V / iPhone ile)
+- 📷 Fotoğraf & Vlog çekmek (Fuji XS20 / iPhone ile)
 - 🪐 Astroloji üzerine videolar hazırlamak
 - 📈 Borsa ve finans piyasalarını takip etmek
 - 🎮 Oyunlar (özellikle futbol menajerlik & kariyer modları)
